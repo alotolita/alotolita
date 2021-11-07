@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alotolita
+- 👀 I’m interested in UX/UI, HTML, CSS, processing ...
+- 🌱 I’m currently learning HTML and CSS
+- 📫 How to reach https://www.alexam.design/
+- ✨Curiosity and creativity can let you go to everywhere. Willing to keep learning here ✨
